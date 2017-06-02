@@ -1,3 +1,5 @@
 Allahu Akbar!
 BOOOOM!!!
-Clap!!!
+  
+nooo
+Cala os dedos
